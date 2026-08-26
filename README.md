@@ -1,0 +1,1 @@
+# Task_3.2-Student-Shema-and-Model
